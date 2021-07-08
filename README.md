@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @NatanaelGomesCardoso
 - 👀 I’m like Coffee :coffee:
 - 🌱 I’m currently learning Kotlin
-- 📫 How to reach me : [Email](natangomescardoso0@gmail.com) or [Linkedin](https://www.linkedin.com/in/natanael-gomes-cardoso-3315b5207/)
+- 📫 How to reach me : Send a message to my [Email](https://mail.google.com/mail/u/0/?ogbl#inbox?compose=jrjtXJTmRTTBcxMNPJTRShCKSKmgcDZgZZLfvwprmRbSBtmvsTrpDXwcVFTLJRVVBrzMtzDw) or [Linkedin](https://www.linkedin.com/in/natanael-gomes-cardoso-3315b5207/)
